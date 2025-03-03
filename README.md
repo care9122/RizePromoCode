@@ -86,4 +86,4 @@ If you’re looking for a **smarter way to track your time** and enhance product
 
 ### Get Started with Rize Today!
 
-[Click here]((https://rize.io/?via=AVA)) to sign up for Rize and use promo code **"AVA"** for **20% off**! 🚀
+[Click here]((https://rize.io/?via=AVA) to sign up for Rize and use promo code **"AVA"** for **20% off**! 🚀
