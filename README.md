@@ -26,7 +26,7 @@ Many professionals struggle with time management, which can lead to stress, miss
 Saving on Rize has never been easier. Follow these simple steps to apply your exclusive **Rize Promo Code "AVA"** and unlock a **20% discount**:
 
 1. **Visit the Official Rize Website**  
-   Go to [Rize.io](https://rize.io) to access the platform.
+   Go to [(https://rize.io/?via=AVA)) to access the platform.
 
 2. **Choose a Subscription Plan**  
    Rize offers different pricing plans, including monthly and annual subscriptions. Select the plan that best suits your needs.
@@ -87,4 +87,4 @@ If you’re looking for a **smarter way to track your time** and enhance product
 
 ### Get Started with Rize Today!
 
-[Click here](https://rize.io) to sign up for Rize and use promo code **"AVA"** for **20% off**! 🚀
+[Click here]((https://rize.io/?via=AVA)) to sign up for Rize and use promo code **"AVA"** for **20% off**! 🚀
